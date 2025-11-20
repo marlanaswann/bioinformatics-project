@@ -1,1 +1,1 @@
-# bioinformatics-project
+Marlana Swann + 1002299570 + BIOL5340-001
